@@ -1,1 +1,0 @@
-# jad_social
